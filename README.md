@@ -1,0 +1,1 @@
+# Introductory-Psychology-Scientific-Reasoning-Modules-for-small-classes-[ReadMe.pdf](https://github.com/courtney-e-stevens/Introductory-Psychology-Scientific-Reasoning-Modules-for-small-classes-/files/10007533/ReadMe.pdf)
